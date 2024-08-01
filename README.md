@@ -11,4 +11,4 @@ caiocardosobezerra@gmail.com
 
 @CaioCardosoBezerra
 
-![https://tenor.com/pt-BR/view/happy-happy-happy-gif-6201622217547275472](link)
+![](https://tenor.com/pt-BR/view/happy-happy-happy-gif-6201622217547275472)
